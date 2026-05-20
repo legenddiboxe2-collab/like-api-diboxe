@@ -1,1 +1,1 @@
-Developed:DIBOXE LEGIT
+Developed by DIBOXE LEGIT !
